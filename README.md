@@ -112,6 +112,7 @@ All portfolio examples are presented for demonstration purposes. Client informat
 
 ## Contact
 
-For e-commerce support, store management, product research, and listing optimization, please connect with me through my Upwork profile.
+For e-commerce support, product research, SEO listings, and store management, please visit my Upwork profile.
 
+(https://www.upwork.com/freelancers/~01f0a96fb2dd859b43?mp_source=share)
 **Upwork Title:** E-commerce VA | Amazon eBay Shopify Listings That Rank & Sell
